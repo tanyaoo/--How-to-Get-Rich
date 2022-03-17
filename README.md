@@ -1,1 +1,1 @@
-# --How-to-Get-Rich
+# How-to-Get-Rich
