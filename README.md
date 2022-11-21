@@ -1,7 +1,9 @@
 # 如何致富How-to-Get-Rich
 
-1. Seek wealth, not money or status. Wealth is having assets that earn while you sleep. Money is how we transfer time and wealth. Status is your place in the social hierarchy. **追求财富，而不是金钱或者地位。 财富是在你睡觉的同时赚取的资产。金钱是我们交易时间和财富的方式。地位是你在社会阶层中的位置。**
-   1. Ignore people playing status games. They gain status by attacking people playing wealth creation games. **不要在意那些玩地位游戏的人。他们通过攻击那些玩财富创造游戏的人来获得地位。**
+1. Seek wealth, not money or status. Wealth is having assets that earn while you sleep. Money is how we transfer time and wealth. Status is your place in the social hierarchy. 
+**追求财富，而不是金钱或者地位。 财富是在你睡觉的同时赚取的资产。金钱是我们交易时间和财富的方式。地位是你在社会阶层中的位置。**
+   1. Ignore people playing status games. They gain status by attacking people playing wealth creation games.
+   **不要在意那些玩地位游戏的人。他们通过攻击那些玩财富创造游戏的人来获得地位。**
 2. Understand that ethical wealth creation is possible. If you secretly despise wealth, it will elude you. **必须懂得，干干净净的创造财富是可能的。如果你私底下讨厌财富，那么财富也会避开你。**
    1. You’re not going to get rich renting out your time. You must own equity - a piece of a business - to gain your financial freedom. **你不可能通过出租你的时间而变得富有。你必须要拥有股权（企业的一部分），从而获得财务自由。**
    2. You will get rich by giving society what it wants but does not yet know how to get. At scale. **通过给予社会想要但还不知道如何获得东西，如果这种东西可以规模化，那么你会变得富有。**
